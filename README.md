@@ -1,1 +1,0 @@
-# app_expo_exemplo-15-08-25
